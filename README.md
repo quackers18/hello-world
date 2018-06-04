@@ -1,3 +1,3 @@
 # hello-world for Gencyber
 
-To be honest, you have to have a very high IQ to watch Rick and Morty
+Howdy! Do you want to learn more about the Cybersecurity Program at UNO? Well now you can! https://www.unomaha.edu/academics/majors-and-programs/index.php
