@@ -1,3 +1,3 @@
-# hello-world
+# hello-world for Gencyber
 
-wow
+To be honest, you have to have a very high IQ to watch Rick and Morty
